@@ -1,1 +1,2 @@
-# the-genius-assassin-who-takes-it-all
+# The Genius Assassin Who Takes it All
+J’ai transmigré dans le novel que j’ai écrit. Pour changer la fin destinée à la destruction, je dois incarner le méchant ‘Shin Kanghu’ et devenir plus fort que le héros.
